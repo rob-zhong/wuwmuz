@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https;//066tiyuzhibowang.com.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>乡村振兴政策加码，农业农村板块集体上涨。<br><br> | 来源：<code>https;//2026wttjinripingpangzhibo.com.cn
+</code></p><br><br><h3>赣锋锂业技术储备：固态电池商业化的领先优势</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https;//24zhibowangtiyuzaixianzhibo.org.cn
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒。<br><br> | 来源：<code>https;//24zuqiuzhiboshipinzaixianguankan.com.cn
+</code></p><br><br><h3>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>https;//3377tiyuzhibo.org.cn
+</code></p><br><br><h3>储能行业需求爆发：产业链上下游的景气度传导逻辑</h3><br><p>外资持续流入万科A，地产龙头外资持仓占比突破2%。<br><br> | 来源：<code>https;//3377zhibobisai.com.cn
+</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>新疆暑期游客量突破5000万人次，西部文旅市场爆发。<br><br> | 来源：<code>https;//360zaixiantiyuzhibomianfeigaoqing.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>https;//360zhibotiyu.org.cn
+</code></p><br><br><h3>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https;//360zuqiuyuyanzhibobaguanwang.org.cn
+</code></p><br><br><h3>全国太湖蓝藻水华预警系统升级，提前7天精准预判</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https;//56zhibotiyuguanwang.com.cn
+</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>https;//587tiyuzhibopingtai.com.cn
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https;//61tiyuzhibowang.org.cn
+</code></p><br><br><h3>专精特新企业扶持政策，专精特新标的全线异动</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>https;//6686tiyuzhibo.org.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https;//66tiyuzhibo.org.cn
+</code></p><br><br><h3>CPI同比上涨0.9%，物价水平保持温和运行态势</h3><br><p>金融大模型赋能投研，AI研报生成效率提升5倍。<br><br> | 来源：<code>https;//66tiyuzhibowang.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https;//66zhibowang.org.cn
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https;//67zhibotiyusaishi.com.cn
+</code></p><br><br><h3>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍</h3><br><p>粤港澳大湾区一体化发展提速，跨境要素流动更加便捷。<br><br> | 来源：<code>https;//68zhibotiyu.org.cn
+</code></p><br><br><h3>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https;//68zhibotiyuguanwang.org.cn
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https;//857tiyusaishizhibomianfeiguankan.com.cn
